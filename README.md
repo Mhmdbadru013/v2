@@ -35,5 +35,5 @@
 ##### catatan:
  gunakanlah dengan bijak, atas apapun yang terjadi admin tidak bertanggung jawab.
 
-##### TRIAL 1HARI
+##### TRIAL 1HARI 👇👇👇
 5m0kqh-9sr3wu-j1dd39-mvbr4o-q79aua
