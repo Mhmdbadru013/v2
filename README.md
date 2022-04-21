@@ -22,7 +22,7 @@
  
 * Notice me: *jika mendapatkan akun cp simpan 1/3, hari lalu loginkan.*
 
-#### RESULTS CRACK IG:
+#### RESULTS CRACK:
 ![template_s](https://github.com/Mhmdbadru013/v2/blob/main/Data/Screenshot_2022-04-22-02-57-12-696_com.termux.jpg)
 * Notice me: Hasil crack followers banyak atau sedikit nya tergantung target yang di dapatkan.
 
