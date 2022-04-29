@@ -15,7 +15,7 @@
  ```
   $ cd v2
   $ git pull
-  $ python CRACKV22.py
+  $ python V2.py
  ```
 ### TAMPILAN AWAL:
 ![template_s](https://github.com/Mhmdbadru013/v2/blob/main/Data/Screenshot_2022-04-22-04-31-34-154_com.termux.jpg)
